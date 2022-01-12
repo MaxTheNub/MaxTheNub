@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MaxTheNub
+- 👀 I’m interested in Tea
+- 🌱 I’m currently learning How To Make Better Tea
+- 💞️ I’m looking to collaborate on Tea And Minecraft
+- 📫 How to reach me Discord -MaxTheNub#7230-
